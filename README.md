@@ -1,1 +1,0 @@
-# Spitogatos-Data-Analyst-Assignment
